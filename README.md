@@ -8,4 +8,4 @@
 
 ##Voce pode entrar em contato comigo📬
 
-- Email:oooo1132055623SP@al.educacao.sp.gov.br
+- Email:00001132055623SP@al.educacao.sp.gov.br
